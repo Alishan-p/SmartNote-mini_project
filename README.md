@@ -1,0 +1,1 @@
+# SmartNote-mini_project
